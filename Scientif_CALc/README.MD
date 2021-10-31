@@ -8,3 +8,6 @@ you just have to enter your choices and boom you get the results.
 
 ![image](https://user-images.githubusercontent.com/56113766/139575948-c721c2c7-ca23-4c83-8158-1a2ae42ad7fd.png)
 
+![image](https://user-images.githubusercontent.com/56113766/139576147-f8b39404-de7a-4ccc-82d9-bb68b546dfda.png)
+
+![image](https://user-images.githubusercontent.com/56113766/139576212-3a5b2e73-1198-44b9-b23e-1e9459f33331.png)
